@@ -1,0 +1,1 @@
+Il était une fois un cowboy avec un gros chapeau il décida d'aller explorer une usine. Entre poisson morts et humains mort il décide d'aller voir une voyante. Après un bon tour de magie, il va manger ! miam!
